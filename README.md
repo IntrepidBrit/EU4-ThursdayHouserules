@@ -1,0 +1,1 @@
+If you've found this, you can probably ignore this. Houserules for our regular EU4 gaming sessions.
